@@ -1,2 +1,1 @@
-# 888RAT-Cracked
-888RAT Cracked 1.2.6
+No virus check: https://www.virustotal.com/
